@@ -6,5 +6,6 @@
 - 📬 How to reach me ...
 1. Instagram: @Florenzobauer
 2. Email: BauerFlorenzo@gmail.com
+3. LinkedIn: https://www.linkedin.com/in/florenzobauer/
 
 
